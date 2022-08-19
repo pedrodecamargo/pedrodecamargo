@@ -3,7 +3,7 @@
 - 👀 eu gosto de jogar god of war 4
 - 🌱 eu gosto muito de pizza e filmes de ação
 - 💞️ jogo volei quando possivel e nao gosto de futebol
-- 📫 nao gosto de ler,pra mim e falta de tempo
+- 📫 nao gosto de ler livros,pra mim e falta de tempo
 -   i love pizza <3 and
 -   
 
